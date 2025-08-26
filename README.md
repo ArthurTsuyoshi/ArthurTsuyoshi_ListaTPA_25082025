@@ -1,0 +1,1 @@
+# ArthurTsuyoshi_ListaTPA_25082025
